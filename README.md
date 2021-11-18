@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SoundffectYT
+- 👀 I’m interested in YouTube and Minecraft
+- 🌱 I’m currently learning more on a arts diploma but also 
+- 💞️ I’m looking to collaborate on nothing
+- 📫 reach me on discord by SoundffectYT#1366
