@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @SoundffectYT
 - 👀 I’m interested in YouTube and Minecraft
 - 🌱 I don't like math
-- 📫 reach me on discord by SoundffectYT#1366
+- 📫 reach me on discord by SoundffectYT#1366 
+- I DO NOT ACCEPT FRIEND REQUESTS.
